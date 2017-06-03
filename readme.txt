@@ -1,2 +1,2 @@
-Git is a distributed version control system.
-Git is free software.
+VimCrypt~01!MâP|vÌSÅÆŠØÐIT`Œ[´´¥†ÃºÐŸàc
+‰žòßö=’®6<znØu„£Ö1€ÑŸZê^ÐˆÖ‰¾Ö5»‹U /@rãì‰É¹ƒÈdü°D‰H
